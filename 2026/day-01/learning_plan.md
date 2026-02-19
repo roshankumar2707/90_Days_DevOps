@@ -4,7 +4,7 @@ Foundation of the DevOps journey
 
 DevOps
 
-I have started learning DevOps and Cloud for the change in career in DevOps JOB and future help my family to build a own Home 
+I have started learning DevOps and Cloud for the change in career in DevOps JOB and future help my family
 
 From today I am taking oath for the below 
 
